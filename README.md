@@ -1,4 +1,3 @@
-[sadsad](https://github.com/)
 # Davinci Resolve Crack
 
 ## Overview
